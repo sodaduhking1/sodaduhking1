@@ -2,10 +2,6 @@
 
 ## WAAAZAAAAAP
 
-![spin](https://github.com/user-attachments/assets/1c1e2c83-274e-4a65-b409-208dea9890d3)
-
-
-
-
+<img width="988" height="965" alt="Image" src="https://github.com/user-attachments/assets/2abe6afd-0a49-4984-8e4e-0d7658c5a886" />
 
 #### I will eat you.
